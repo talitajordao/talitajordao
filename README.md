@@ -6,6 +6,4 @@
   
   📫 Contate-me no email: talitaarjordao@gmail.com
   
-### CONECTE-SE COMIGO:
-
-[![Readme Card](https://www.linkedin.com/in/talita-jord%C3%A3o-a42671237/)](https://github.com/talitajordao)
+### CONECTE-SE COMIGO 😉
