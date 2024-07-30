@@ -1,6 +1,6 @@
 ### Olá! Eu sou a Talita Jordão 🙂
 
-  👩🏻‍🎓 3° Período em Administração
+  👩🏻‍🎓 4° Período em Administração
   
   🌱 Estudando Análise de Dados 
   
